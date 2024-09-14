@@ -14,3 +14,10 @@ Dont miss to subscribe my channel your support is required
 
 
 
+![ActivityResultLauncher - New Way](https://github.com/user-attachments/assets/8d77fbcb-3718-4760-aee7-e9207e442885)
+
+
+
+
+
+
